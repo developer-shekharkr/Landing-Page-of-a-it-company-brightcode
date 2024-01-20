@@ -1,1 +1,1 @@
-https://developer-shekharkr.github.io/Landing-Page-of-a-it-company-brightcode/
+https://developer-shekharkr.github.io/Landing-Page-of-an-it-company-brightcode/
